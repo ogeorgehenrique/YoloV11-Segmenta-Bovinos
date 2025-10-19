@@ -1,0 +1,1 @@
+# YoloV11-para-Segmenta-o-de-Bovinos
